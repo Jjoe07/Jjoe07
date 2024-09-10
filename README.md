@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jjoe07
+- 👋 Hi, I’m @Jjoe RM
 - 👀 I’m interested in ... IT and Mechanic
 - 🌱 I’m currently learning ... Networking
 - 💞️ I’m looking to collaborate on ...all IT Project
